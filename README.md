@@ -1,2 +1,2 @@
 # iview
-social network iview join me guys to bulid this project with the mos greattest ideas
+social network iview join me guys to build this project with the greattest ideas never seen before
